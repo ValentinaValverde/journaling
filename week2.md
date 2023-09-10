@@ -22,4 +22,4 @@ Sometimes I'm reminded of what I'm sacrificing to be here. I spent the first hal
 
 But other times, I'm reminded of what my parents have sacrificed for me to be here. And I ignore my feelings and push onward. I suspect that it will get worse over the next few weeks, but deep down somewhere I know that it's going to be worth it.
 
-I feel as though I have been to vulnerable. This was fun. Yipee!
+I feel as though I have been too vulnerable. This was fun. Yipee!
